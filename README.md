@@ -1,0 +1,1 @@
+# Ashampoo-Snap-26.0.2
